@@ -8,7 +8,7 @@ __fav ships!__
 i like almost every pairing but these ones are my fave ones!!
 luchino/eli, joseph/aesop, margaretha/anne, andrew/antonio, tracy/violetta, alice/melly, helena/galatea, luchino/antonio, edgar/jack, fionna/patricia, andrew/aesop, martha/demi, william/victor, emil/frederick
 
-~~i prefer to not see margjoker, elisop, adamil, ithagrace~~
+~~i will avoid margjoker, elisop, adamil, ithagrace~~
 
 
  __coolest people here <3__  
