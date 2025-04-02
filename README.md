@@ -1,3 +1,2 @@
 <p><img style="display: block; margin-left: auto; margin-right: auto;" src="https://cdn.discordapp.com/attachments/1351235224230428794/1351250411964596294/Yasuho_Hirose_Infobox_Manga.png?ex=67ee20c3&is=67eccf43&hm=8e1159c83817601d68509bb906206e44455e9ccbc43df01138bb305acf5cc362&" alt="yasuho" width="300" height="384" /></p>
-<p style="text-align: center;"><em>[ work in progress ]</em></p>
-<p style="text-align: center;"><em>multishipper . fan #1 of luchino x eli and aesop x joseph </em></p>
+<p style="text-align: center;"><em>multishipper . fan #1 of luchieli and joscarl </em></p>
