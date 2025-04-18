@@ -1,2 +1,2 @@
-<p><img style="display: block; margin-left: auto; margin-right: auto;" src="https://cdn.discordapp.com/attachments/1351235224230428794/1351250411964596294/Yasuho_Hirose_Infobox_Manga.png?ex=67ee20c3&is=67eccf43&hm=8e1159c83817601d68509bb906206e44455e9ccbc43df01138bb305acf5cc362&" alt="yasuho" width="300" height="384" /></p>
+<p><img style="display: block; margin-left: auto; margin-right: auto;" src="https://cdn.discordapp.com/attachments/1351235224230428794/1351250411964596294/Yasuho_Hirose_Infobox_Manga.png?ex=68029003&is=68013e83&hm=7ea76e402391d572db82914f2128fcfd285e67f5ca2111d0df3f5ac10016275a&" alt="yasuho" width="300" height="384" /></p>
 <p style="text-align: center;"><em>multishipper . fan #1 of luchieli and joscarl </em></p>
